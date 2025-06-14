@@ -1,0 +1,41 @@
+# Formula 1 Basics
+
+## Sport Structure
+• 10 teams, 20 drivers, ~24 races per year
+• Points: 25 for win, 18 for 2nd, 15 for 3rd, down to 1 point for 10th
+• Fastest lap gets 1 bonus point (if you finish top 10)
+
+## Race Weekend
+• Friday: Practice sessions (car setup)
+• Saturday: Qualifying (determines starting positions)
+• Sunday: Race (~300km or 2 hours max)
+
+## Qualifying Format
+• Q1: All 20 cars, slowest 5 eliminated
+• Q2: Remaining 15 cars, slowest 5 eliminated  
+• Q3: Final 10 cars fight for pole position (1st place start)
+
+## Race Strategy
+• Must use 2 different tire types during race
+• Soft tires: Fast but wear out quickly
+• Medium tires: Balanced performance
+• Hard tires: Slower but last longer
+• Pit stops: Change tires, refuel (takes 2-3 seconds)
+• Strategy involves when to pit vs. staying out
+
+---
+
+# Team Landscape
+
+| Team | Key Players | Status | Strategy |
+|------|-------------|--------|----------|
+| **Red Bull** | Verstappen, Horner (boss) | Winning everything | Best aerodynamics, technical excellence |
+| **Ferrari** | Leclerc, Sainz | Historic team, inconsistent | Italian passion, strategic mistakes |
+| **Mercedes** | Russell, Hamilton | Former dominators struggling | Engineering perfection, adapting to new rules |
+| **McLaren** | Norris, Piastri | Comeback story | Innovation, quick adaptation |
+| **Aston Martin** | Alonso, Stroll | Midfield with ambition | Heavy investment, hiring top talent |
+| **Alpine** | Gasly, Ocon | French team, unstable | Constant reorganization |
+| **Williams** | Albon, Sargeant | Rebuilding legends | Independent spirit, limited budget |
+| **Haas** | Magnussen, Hulkenberg | American underdogs | Ferrari partnership, minimal budget |
+| **Sauber** | Zhou, Bottas | Waiting for Audi takeover | Holding pattern until 2026 |
+| **Racing Bulls** | Tsunoda, Ricciardo | Red Bull's junior team | Developing young drivers |
