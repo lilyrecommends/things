@@ -1,3 +1,178 @@
+##2025
+    ###January
+    
+    
+        Reading _The Ordeal of Richard Feverel_; listening to Brahms’ violin concerto (concert today), Jessica Pratt, JPEG for the upcoming concert, Ecco2k and Bladee, etc.; _Industry_, _Rogue Heroes_.
+
+    
+    ###February
+    
+    
+        Watching _Severance_ and _White Lotus_; listening to Carti, Drake, and Bruckner 7; reading very little of Meredith still; ordering ChefGood and Zara. Need to wake up early again and feel the sun and run and lift and cook.
+
+
+    ###April
+    
+    
+        Watching _Arrested Development_; listening to Drake and Mozart; onto H.G. Wells’ _Marriage_; no more ChefGood but a lot of Amazon and Zara. 
+
+
+    ###June
+
+
+        _Love Island_, Drake's 'For All the Dogs', F1, Tradle. 
+
+
+##2024
+    ###January
+    
+
+        I started logging how I spend my hours again (more and more evident that the more productive I am, the less successfully I log hours). I joined a gym. I have a new slim Coach watch (excited to replace the band once its worn out with a more neutral toned) and phone (12 mini). I have spent a few days at the [redacted] preparing for [redacted]. My listening habits are off-track: a couple of rave singles on repeat. I am reading a few pages of Boswell on Johnson before bed and rereading Emerson in the morning with a bit of Pope revision. My consumption of classic literature and music, which has typically kept me afloat in the bay of dulness, has been reduced for the consumption of [redacted], minimal techno, and friends. That being said, good phrases appear slower in the brain now. I should write more.
+
+
+    ###February
+    
+    
+        Rave and rock singles still on repeat, Kanye’s new album, and the occasional Mahler symphony. Started Macaulay’s essays. Investing in a lot of Saba. Simply surviving until London.
+
+
+    ###March
+    
+    
+        _Macbeth_, _Othello_, and _Twelfth Night_, hum the classical program for this week including Mozart’s piano concerto no. 20, and read Macauley every morning.
+
+
+
+    ###April
+    
+    
+        I enjoyed the liveliness of London and the leisure of Spain and Italy. Taking road and rail transport across Andalucia caused several shocks of beauty. I wonder if it is worth moving to London just to see more equivalents of Sir Ian McKellen in _Henry IV_ as Falstaff and a consequent midnight walk of tears.
+
+
+    ###May
+    
+    
+        _Ally McBeal_ in Season 1. 
+
+
+    ###June
+    
+    
+        Onto _Desperate Housewives_; chronological biographies of philosophers, George Meredith’s _The Egoist_, the science brick; _Don Giovanni_, Carpenters discography, a shameful amount of pop; Stewart Lee; nicotine; matcha; energy dissipators in dams...
+
+
+    ###July
+    
+    
+        Love Island UK Season 11 and some of US Season 6; very loosely read biographies of philosophers (Bacon was a rat) and half-hours with authors and some text on energy and matter; Mk.gee’s 'A Museum of Contradiction' and 'Two Star & The Dream Police' (‘Candy’ and ‘I want’) and Charli XCX’s 'Brat'.
+
+
+    ###December
+    
+    
+        Reading Robert Caro’s _Power Broker_ and started 2024/5 log. Listening to Mahler 4.
+
+
+##2023
+    ###January
+    
+    
+        __Saturday 7th__
+        
+        
+            _Guess Who’s Coming to Dinner?_
+
+
+        __Sunday 15th__
+        
+        
+            Chores this morning. The executive decision to avoid wasting time going to [redacted] and [redacted] when I could simply borrow the _Wind in the Willows_ on the Staff Development Days, and use this week for history, has drawn me to self-satisfaction.
+
+        
+        __Saturday 21st__
+        
+            [redacted] and I texted about the authors we were reading (Meredith and Eliot) and shared excerpts.
+
+
+            [redacted] went to see Mahler 1, and then wanted to go clubbing.
+
+        __Sunday 22nd__
+        
+            
+            I completed _Diana of the Crossways_.
+
+
+        __Wednesday 25th__
+        
+            
+            I caught the ferry back to Circular Quay, went home to dress, and left again for the AGNSW to see _The Misfits_ (1961) by John Huston, starring Clark Gable and Marilyn Monroe.
+
+
+    ###February
+    
+        
+        __Saturday 11th__
+        
+        
+            Mahler 1 was unbelievable — I met a lovely old man named Fred and his partner whose name I forgot. She was Asian, in a wheelchair, on his second wine, and loved Bach like me. Saw an oboeist I fell in love with.
+            
+            I started the 2023 log a few days ago and it looks as fertile in utility and longevity as Library and Finances. I am learning all American states, a 5-minute encapsulation of pre- and ancient history, and Pope’s second stanza of 'An Essay on Man: Epistle I'. I am continuing Meredith, but I think that will be my last book for the next fortnight as I am required to read another by Kate Greenville and Kenneth Grahame’s _The Wind in the Willows_. I am listening to a Beatles shuffle playlist and Mendelssohn’s Symphony No. 5. I am trying to outpace and extend myself in running. Also working on the following documents and slides: ‘What? How?’ identifying and explaining various engineering systems, and ‘History’."
+    
+
+    ###March
+
+
+            I am listening to Bellini’s 'I Puritani' and Mahler again, reading through the Reader’s Digest of _When, Where, Why, and How It Happened_, and watching many archive.org documentaries; I am learning American cities, more Articulate trivia cards, and Pope; I am undertaking a qwerty typing course; I am teaching the overview of ancient societies, Archeology, Medieval Europe, Chinese history the Big Bang, Kate Grenville, and Kenneth Grahame’s _The Wind in the Willows_, developing my History document.
+
+
+
+    ###May
+    
+    
+            Welsh's _Man to Man_ every now and then; I listened to a recent setlist of Denzel Curry for his concert and two songs on repeat (Games by The Strokes and Boy's A Liar pt. 2 by PinkPantheress ft. Ice Spice) but am returning to Bach's fifteen inventions; I learned a lot about quarries, consulting, and the geopolitics of football. I have a 4k 27"" monitor now.
+
+
+    ###June
+
+
+            I am reading Boswell's _Life of Samuel Johnson_ and H. G. Wells' _A Short History of the World_; listening to upcoming concert programs (Beethoven's PC 4 and 6, etc.).
+            
+            
+    ###July
+    
+    
+        __Wednesday 12th__
+            
+            
+            These holidays have been wonderful in solitude. I have risen everyday at 05:00, sometimes a touch before, to fill and burn the percolator; while waiting, redistribute the feathers in my quilt and flatten my sheet set with my palm, drink a glass of raw milk or water, light my Hunter candle, and brush my hair into a ponytail; read for an hour; prepare and devour poached eggs on tomato relish on buttered toast; clean; showered; and dressed. I will add some stretches to this as my muscles atrophy too enthusiastically with the sedentary life of an avid reader and teacher. Last week, I read H. G. Wells' _A Short History of the World_ and now I am continuing Boswell's _Life of Johnson_. Among other things, I have learnt that there is an orthodox prosody to the Ten Commandments, e.g. "Thou shalt not bear false witness against thy neighbour." I have completed marking, outlined my presentation on ChatGPT for Monday, and hope to select my eight pieces of evidence for accreditation today.
+
+        
+        __Saturday 15th__
+        
+        
+            I listened to Bach falling asleep last night.
+
+
+        __Saturday 29th__
+        
+            
+            A few hours from the last post, I caught the train into Circular Quay. I inspected the rivets of the Harbour Bridge while sitting on the grassy hill beside it, listening to a documentary about its construction: the order of components (top arch, second arch, the plank using a barge), the sixteen workers who died (including one man whose thumb was infected from trauma and died a few days later), the child with a knack for engineering who travelled one hundred kilometers to see the opening (and the lovely Australians who supported him on his pilgrimage), and the political turmoil surrounding the opening with the New Guard member rushing in on his horse to cut the ribbon before the polarising Jack Lang could. I sauntered around the Rocks and admired the heritage surrounding me before it was supplanted with charming nougat, glassware, and homemade cosmetics stalls, savoury aromas flying everywhere. I wore a juvenile pink cardigan and a red satin skirt on top of brown leather bowed ballet flats. I caught the ferry to Manly. The sight of HMAS Canberra and recently commissioned USS Canberra compensated for the blast of cold sticky winds that hammered my limbs for twenty minutes. 
+
+
+    ###August
+    
+    
+            Wells' _History_ was a genuine delight that I'd like to reread again and again but rationing Boswell, enough for Term 3; I am listening to Beethoven's 'Hammerklavier'; and I am happy with this iteration of a morning: I rise at 05:00, turn on the lamp, fix my hair and percolate coffee, while it's percolating I make my bed, moisturise my face, light a candle, and switch lamps, I read for as long as I can before breakfast, shower, and dress; I have abandoned all exercise but am optimistic about having solid limbs for the arrival of Spring. I have observed a harrowing time of day, from 2 to 5 in the afternoon, where I am depleted and consequently frustrated. If I nap, which I have been doing for the past few months, then from 5 to 7pm I become even angrier. So, from 2 to 5, I need to stay awake by eating or exercising or reading or emails — anything but approaching the sinkhole that is the bed. I also tend to become a menace or suicidal with delayed breakfast, so that is a priority.
+
+
+            I am listening to a shared playlist and miscellaneous classical pieces (e.g. Kodaly’s ‘Dances of Galanta’); I am reading Leopardi’s collection of prose and poetry (select imagery from the Zibaldone feel Nabokovian, and [redacted] enjoys Operette Morali dialogues more than I do but I enjoy the occasional crisp and poignant line; his biography and diaries are probably worth rereading) and Allan Bloom’s _The Closing of the American Mind_; I renewed my licence and am nervous about merging onto the highway; I eat Milo cereal for breakfast, cooked beef for lunch, and chicken bites hot out of the oven for an early dinner; in the mornings, I learn Italian and talk to the Italian; the hours of hell (2-5pm) are mostly spent reading before exercising; I still babysit frequently; I have seen _Oppenheimer_ thrice.
+
+
+    ###September
+            
+            Reading Boswell’s _Life of Samuel Johnson_, cleaning to Troye Sivan’s ‘Got Me Started’.
+
+
 ##2022
     ###January
     
@@ -81,61 +256,5 @@
             A few hours later, I found Emo Phillips.
 
 
-##2023
-    ###January
-    
-    
-        __Saturday 7th__
-        
-        
-            _Guess Who’s Coming to Dinner?_
 
 
-        __Sunday 15th__
-        
-        
-            Chores this morning. The executive decision to avoid wasting time going to [redacted] and [redacted] when I could simply borrow the _Wind in the Willows_ on the Staff Development Days, and use this week for history, has drawn me to self-satisfaction.
-
-        
-        __Saturday 21st__
-        
-            [redacted] and I texted about the authors we were reading (Meredith and Eliot) and shared excerpts.
-
-
-            [redacted] went to see Mahler 1, and then wanted to go clubbing.
-
-        __Sunday 22nd__
-        
-            
-            I completed _Diana of the Crossways_.
-
-
-        __Wednesday 25th__
-        
-            
-            I caught the ferry back to Circular Quay, went home to dress, and left again for the AGNSW to see _The Misfits_ (1961) by John Huston, starring Clark Gable and Marilyn Monroe.
-
-
-    ###February
-    
-        
-        __Saturday 11th__
-        
-        
-            Mahler 1 was unbelievable — I met a lovely old man named Fred and his partner whose name I forgot. She was Asian, in a wheelchair, on his second wine, and loved Bach like me. Saw an oboeist I fell in love with."
-,,,"I started the 2023 log a few days ago and it looks as fertile in utility and longevity as Library and Finances. I am learning all American states, a 5-minute encapsulation of pre- and ancient history, and Pope’s second stanza of An Essay on Man: Epistle I. I am continuing Meredith, but I think that will be my last book for the next fortnight as I am required to read another by Kate Greenville and Kenneth Grahame’s The Wind in the Willows. I am listening to [redacted] Beatles shuffle playlist and Mendelssohn’s Symphony No. 5. I am trying to outpace and extend myself in running. Also working on the following documents and slides: ‘What? How?’ identifying and explaining various engineering systems, and ‘History’."
-,,,"I am listening to Bellini’s I Puritani and Mahler again, reading through the Reader’s Digest of When, Where, Why, and How It Happened, and watching many archive.org documentaries; I am learning American cities, more Articulate trivia cards, and Pope; I am undertaking a qwerty typing course; I am teaching the overview of ancient societies, Archeology, Medieval Europe, Chinese history the Big Bang, Kate Grenville, and Kenneth Grahame’s The Wind in the Willows, developing my History document."
-,May,,"Welsh's Man to Man every now and then; I listened to a recent setlist of Denzel Curry for his concert and two songs on repeat (Games by The Strokes and Boy's A Liar pt. 2 by PinkPantheress ft. Ice Spice) but am returning to Bach's fifteen inventions; I learned a lot about quarries, consulting, and the geopolitics of football. I have a 4k 27"" monitor now."
-,June,,"I am reading Boswell's Life of Samuel Johnson and H. G. Wells' A Short History of the World; listening to upcoming concert programs (Beethoven's PC 4 and 6, etc.);"
-,July,Wednesday 12th,"These holidays have been wonderful in solitude. I have risen everyday at 05:00, sometimes a touch before, to fill and burn the percolator; while waiting, redistribute the feathers in my quilt and flatten my sheet set with my palm, drink a glass of raw milk or water, light my Hunter candle, and brush my hair into a ponytail; read for an hour; prepare and devour poached eggs on tomato relish on buttered toast; clean; showered; and dressed. I will add some stretches to this as my muscles atrophy too enthusiastically with the sedentary life of an avid reader and teacher. Last week, I read H. G. Wells' A Short History of the World and now I am continuing Boswell's Life of Johnson. Among other things, I have learnt that there is an orthodox prosody to the Ten Commandments, e.g. ""Thou shalt not bear false witness against thy neighbour."" I have completed marking, outlined my presentation on ChatGPT for Monday, and hope to select my eight pieces of evidence for accreditation today."
-,,Saturday 15th,I listened to Bach falling asleep last night.
-,,Saturday 29th,"A few hours from the last post, I caught the train into Circular Quay. I inspected the rivets of the Harbour Bridge while sitting on the grassy hill beside it, listening to a documentary about its construction: the order of components (top arch, second arch, the plank using a barge), the sixteen workers who died (including one man whose thumb was infected from trauma and died a few days later), the child with a knack for engineering who travelled one hundred kilometers to see the opening (and the lovely Australians who supported him on his pilgrimage), and the political turmoil surrounding the opening with the New Guard member rushing in on his horse to cut the ribbon before the polarising Jack Lang could. I sauntered around the Rocks and admired the heritage surrounding me before it was supplanted with charming nougat, glassware, and homemade cosmetics stalls, savoury aromas flying everywhere. I wore a juvenile pink cardigan and a red satin skirt on top of brown leather bowed ballet flats. I caught the ferry to Manly. The sight of HMAS Canberra and recently commissioned USS Canberra compensated for the blast of cold sticky winds that hammered my limbs for twenty minutes. I was meant to see [redacted] on Sunday but asked him if he was in the city for a stroll. I walked to Manly beach, caught strange shapes, and returned to eat a pork bun and takoyaki at [redacted]."
-,August,,"Wells' History was a genuine delight that I'd like to reread again and again but rationing Boswell, enough for Term 3; I am listening to Beethoven's 'Hammerklavier'; and I am happy with this iteration of a morning: I rise at 05:00, turn on the lamp, fix my hair and percolate coffee, while it's percolating I make my bed, moisturise my face, light a candle, and switch lamps, I read for as long as I can before breakfast, shower, and dress; I have abandoned all exercise but am optimistic about having solid limbs for the arrival of Spring. I have observed a harrowing time of day, from 2 to 5 in the afternoon, where I am depleted and consequently frustrated. If I nap, which I have been doing for the past few months, then from 5 to 7pm I become even angrier. So, from 2 to 5, I need to stay awake by eating or exercising or reading or emails — anything but approaching the sinkhole that is the bed. I also tend to become a menace or suicidal with delayed breakfast, so that is a priority."
-,,,"I am listening to [redacted]’s and my shared playlist and miscellaneous classical pieces (e.g. Kodaly’s ‘Dances of Galanta’); I am reading Leopardi’s collection of prose and poetry (select imagery from the Zibaldone feel Nabokovian, and [redacted] enjoys Operette Morali dialogues more than I do but I enjoy the occasional crisp and poignant line; his biography and diaries are probably worth rereading) and Allan Bloom’s The Closing of the American Mind; I renewed my licence and am nervous about merging onto the highway; I eat Milo cereal for breakfast, cooked beef for lunch, and chicken bites hot out of the oven for an early dinner; in the mornings, I learn Italian and talk to the Italian; the hours of hell (2-5pm) are mostly spent reading before exercising; I still babysit frequently; I have seen Oppenheimer thrice and plan to go again with [redacted]; I am counting down the days until [redacted] returns."
-,September,,"Reading Boswell’s Life of Samuel Johnson, cleaning to Troye Sivan’s ‘Got Me Started’."
-
-
-##Year2
-###Month2
-__Day2__
-    Log entry.2 with 4 spaces of indentation.
