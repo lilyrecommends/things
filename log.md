@@ -19,10 +19,19 @@
 
     ###June
 
-
-        _Love Island_ USA, Drake's 'For All the Dogs', F1 (George Russell!), Tradle. 
-
-
+        | Things | Week 4 |
+        |--------|--------|
+        | 05:30 | ♥ ♡ ♡ ♡ ♡ ♡ ♡ |
+        | Exercise | ♥ ♡ ♡ ♡ ♡ ♡ ♡ |
+        | Reading | G. Lowes Dickinson, _Appearances: Being Notes of Travel_ |
+        | [Listening](https://open.spotify.com/playlist/6iE3EA0fnMIVcJO6AOi3tS?si=0fc71a2429db41b8) | Boards of Canada, 'Music Has the Right to Children', Drake's 'For All the Dogs', Berkeley's 'Missa Brevis', and The Symposium's 'The Sonic Age'. 
+        
+        Repeat: Nourished by Time's '9 2 5'.|
+        | Watching | Love Island USA |
+        | Learning | African geography, Tradle, F1 |
+        | Meditate | ♥ ♡ ♡ ♡ ♡ ♡ ♡ |
+    
+    
 ##2024
     ###January
     
