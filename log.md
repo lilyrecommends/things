@@ -20,7 +20,7 @@
     ###June
 
 
-        _Love Island_, Drake's 'For All the Dogs', F1, Tradle. 
+        _Love Island_ USA, Drake's 'For All the Dogs', F1 (George Russell!), Tradle. 
 
 
 ##2024
